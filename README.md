@@ -1,2 +1,0 @@
-# PraktikumBasisData_233040065
-# PraktikumBasisData_233040065
